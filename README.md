@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c++,SQL..
 - 💞️ I’m looking to collaborate..
 - 📫 How to reach me : 
-- Instagram: https://www.instagram.com/dd_lathiya
+- Instagram: https://www.instagram.com/ddlathiya
 - Mail: darshlathiya03@gmail.com
 - 
 
